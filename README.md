@@ -116,5 +116,5 @@ Feel free to connect on LinkedIn or GitHub.
 ---
 
 ## ✅ :
--  Saiful Islam and https://www.linkedin.com/in/saiful007.
+-  Saiful Islam and [linkedin](https://www.linkedin.com/in/saiful007/).
 
